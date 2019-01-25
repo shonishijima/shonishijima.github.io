@@ -1,1 +1,0 @@
-# shonishijima.github.io
